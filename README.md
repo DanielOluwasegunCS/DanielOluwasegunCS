@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hello, what's going on? My first name is Ikeoluwa, but you can call me by my middle name, Daniel, it's much easier😄. I'm a gamer and anime lover at heart but for work purposes I'm an IT Professional😊.
 
 <!--
 **DanielOluwasegunCS/DanielOluwasegunCS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
